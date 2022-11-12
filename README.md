@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **alidhanani2000@gmail.com**
 
-- ⚡ Fun fact **I like cats AND dogs!**
+- ⚡ Fun fact **I like pineapples on pizza**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
